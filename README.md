@@ -27,3 +27,5 @@ Oh no! “Trump Firebreather” has finally replugged his plugs and has discover
 Woah!!! You did it. 1010 is free!
 
 <img src="http://www.horsenation.com/wp-content/uploads/2013/05/my-little-pony-friendship-is-magic-brony-you-win.gif" style="width:5px;height:5px;">
+
+Congratulations! You have saved 1010 with your amazing hacking skills. The kingdom of magical unicorns of Dotsville will forever hail you as their hero. You are welcome back anytime. Thank you for playing.
