@@ -25,3 +25,5 @@ Oh no! “Trump Firebreather” has finally replugged his plugs and has discover
 <img src="https://33.media.tumblr.com/22f644df0ab2935f02e600b32962ffb5/tumblr_inline_mud7u2eakP1r5ight.gif" style="width:5px;height:5px;">
 
 Woah!!! You did it. 1010 is free!
+
+<img src="http://www.horsenation.com/wp-content/uploads/2013/05/my-little-pony-friendship-is-magic-brony-you-win.gif" style="width:5px;height:5px;">
