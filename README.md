@@ -28,4 +28,4 @@ Woah!!! You did it. 1010 is free!
 
 <img src="http://www.horsenation.com/wp-content/uploads/2013/05/my-little-pony-friendship-is-magic-brony-you-win.gif" style="width:5px;height:5px;">
 
-Congratulations! You have saved 1010 with your amazing hacking skills. The kingdom of magical unicorns of Dotsville will forever hail you as their hero. You are welcome back anytime. Thank you for playing.
+Congratulations! You have saved 1010 with your amazing hacking skills. "Trump Firebreather" is defeated and lost all of his sponsors. The kingdom of magical unicorns of Dotsville will forever hail you as their hero. 1010 would like to reward your diligence with a key to Dotsville City. You are welcome back anytime. Thank you for playing.
