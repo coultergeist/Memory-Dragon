@@ -18,5 +18,9 @@ Start of a game:
 
 On the rainbow painted streets of Dotville, the angry homophobic dragon “Trump Firebreather” has captured the beautiful Drag Queen Princess, 1010. The only way to free 1010 is to hack the code while the dragon is getting his hair plug "replugged." Match 3 or more combos of color to level up. Link colors at the top, sides, bottom or even diagonally. Only "touching" colors form a combo. The greater the combo the faster you level up. The lock is a 10 phase lock. Reach level 10 and free 1010. Hurry! Time is running out!
 
+<img src="https://www.colourbox.com/preview/2198835-a-fiery-orange-and-yellow-blurred-dots-background-texture.jpg" style="width:5px;height:5px;">
+
+Oh no! Trump Firebreather is back before you could hack the lock! Try again once he leaves but, please, be quicker!!!
+
 
 
