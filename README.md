@@ -14,3 +14,9 @@ Start of a game:
 
 
 <img src="http://i.imgur.com/tYnNOOc.png" style="width:5px;height:5px;">
+
+
+The story:
+
+
+
