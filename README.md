@@ -7,4 +7,7 @@ MEMORY DRAGON
 
 Description:
 
-This game is a simple memory game with vivid colors and addicting gameplay. The user has to select the colored dots in the order that they appear on the screen within a given time limit. The game starts out with just one dot appearing, but the number of dots quickly rises as the user successfully select the dots in the correct order. Points are giving for each correctly identifying a set of dots and the user will move up a level once they reach a 10 dot combo! All of this with the addition of the increasing speed of which the dots appear will make gameplay both quick and challenging. 
+This game is a simple memory game with vivid colors and addicting gameplay. The user has to select the colored dots in the order that they appear on the screen within a given time limit. The game starts out with just one dot appearing, but the number of dots quickly rises as the user successfully select the dots in the correct order. Points are giving for correctly identifying a set of dots and the user will move up a level once they reach a 10 dot combo! All of this with the addition of the increasing speed of which the dots appear will make gameplay both quick and challenging. 
+
+Start of a game:
+<img scr="http://i.imgur.com/tYnNOOc.png" style="width:5px;height:5px;">
