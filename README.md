@@ -22,5 +22,5 @@ On the rainbow painted streets of Dotville, the angry homophobic dragon “Trump
 
 Oh no! “Trump Firebreather” has finally replugged his plugs and has discovered you trying to save the princess! He takes in a deep breath and as he releases his flames, you hear the words, “You’re fired.” Try again after he leaves!
 
-
+<img src="https://33.media.tumblr.com/22f644df0ab2935f02e600b32962ffb5/tumblr_inline_mud7u2eakP1r5ight.gif" style="width:5px;height:5px;">
 
