@@ -28,4 +28,21 @@ Woah!!! You did it. 1010 is free!
 
 <img src="http://www.horsenation.com/wp-content/uploads/2013/05/my-little-pony-friendship-is-magic-brony-you-win.gif" style="width:5px;height:5px;">
 
-Congratulations! You have saved 1010 with your amazing memorization skills. "Trump Firebreather" is defeated and lost all of his sponsors. The kingdom of magical unicorns of Dotsville will forever hail you as their hero. 1010 would like to reward your diligence with a key to Dotsville City. You are welcome back anytime. Thank you for playing.
+Congratulations! You have saved 1010 with your amazing memorization skills. "Trump Firebreather" is defeated and lost all of his sponsors. The kingdom of magical unicorns of Dotsville will forever hail you as their hero. 1010 would like to reward your diligence with a key to Dotsville City.
+
+Bonus Round:
+
+Oh no! It looks as though "Trump Firebreather" is gaining power again, and is slowly attacking in a nearby town, Lineslane City where "Bernie Rainbows," the retired Mayor of Dotsville City currently is visiting to ensure that the rich don't gain too much power in their crumbling infrastructure. (In his retirement, "Bernie Rainbows" has frequently helped crumbling neighbor cities get back on their feet.) "Trump Firebreather" is holding "Bernie Rainbows" hostage, and won't let him return to Dotsville until you go defeat him in Lineslane City.
+
+<img src="https://lh3.googleusercontent.com/proxy/POaDtWTP5dtZqYJsjW0Vsscz5ufiHHJmUFSNH6wKWWMdCAi03smD1s8VZPezyUkNUsUiOe4e3atNJ8DA-gxlvuu2BXMSzJHCPz2t74wF12GFwd9_vQ=w506-h281"
+style="width:5px,height:5px">
+
+In this bonus round, you and Lineslane are coming together to defeat "Bernie Rainbows." Connect same-color dots to form a line before time runs out.
+
+<img src="https://lh3.ggpht.com/W4Q8dd8zjpdYe1KyV2t56QjJ_qgq299FzyGs4sZpFl50-vJ2SFNjM3cA1BGU32jqRp0=w300"
+style="width:5px,height:5px">
+
+Congratulations! You have defeated "Trump Firebreather" once more and have saved "Bernie Rainbows." Dotsville is absorbing Lineslane until it gets back on its feet, because "Bernie Rainbows" is now making sure "Trump Firebreather" is getting taxed!
+
+<img src="http://www.horsenation.com/wp-content/uploads/2013/05/my-little-pony-friendship-is-magic-brony-you-win.gif"
+style="width:5px,height:5px">
